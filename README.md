@@ -1,2 +1,2 @@
 # learn
-![Image](https://github.com/user-attachments/assets/2495a76f-b740-478e-a452-f6a379a5e9e9)
+![Image](https://github.com/user-attachments/assets/989186ce-4d6b-42d0-b824-86dffd9601a3)
